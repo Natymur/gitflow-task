@@ -1,0 +1,1 @@
+>***Xiaomi RedmiBook 16 is a Windows 10 Home laptop with a 16.00-inch display that has a resolution of 1920x1080 pixels. It is powered by a Core i5 processor and it comes with 8GB of RAM. The Xiaomi RedmiBook 16 packs 512GB of SSD storage.***
